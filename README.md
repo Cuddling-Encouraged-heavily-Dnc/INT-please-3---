@@ -11,7 +11,7 @@ Forsaken , dandys world , crk/cookie run kingdom {dont know much about it and do
 
 other ppl with Cuddlecomf n or love C+h  ok cuddle me nowwwwww ok . Even if i have dni in my name most of the timesss ... or not stated in name ! i wont move away dont worri ok . 
 
-MATCHING SKINS INT W ME OKKK i love matching skins w people its so fun istg do ts and ill mary you no fax no cap no uh glutten idk . i mostly like um um john dough and jane dough [doe] and jx1dx1 and aubree [DO NOT USE HE/HIM ON AUBREE .] , 1x1 and shedletsky [NOT A SHIP .] , 007n7 and noli/c00lkid both !! .  
+MATCHING SKINS INT W ME OKKK i love matching skins w people its so fun istg do ts and ill mary you no fax no cap no uh glutten idk . i mostly like um um john dough and jane dough [doe] and jx1dx1 and aubree [DO NOT USE HE/HIM ON AUBREE .] , 1x1 and shedletsky [NOT A SHIP .] , 007n7 and noli/c00lkid both !! . and 2x2x2x2 / 1x1x1x1 and telamon 
 
 People who yap about anything even serious topics and dont mind ok . I sometimes do want to talk about serious topics and if do that aswell INT RIGHT NOW ! 
 
