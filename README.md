@@ -8,7 +8,7 @@ Forsaken , dandys world , crk/cookie run kingdom {dont know much about it and do
 
 # . Ships - 
 
-!!- <3 Pizzadebt , noob666 , Pizzadagger , Azuretime ,janejohn , Brightshed ,Brightela/brightmon , Spectre x nosferatu , Shellvision , fruitcake Cookie ornament , 77noli [iwc tho.] , toodles x gourdy [dont do something weird istg.] .
+!!- <3 Pizzadebt , noob666 , Pizzadagger , Azuretime ,janejohn , Brightshed ,Brightela/brightmon , Spectre x nosferatu , Shellvision , fruitcake Cookie ornament , 77noli [iwc tho.] , toodles x gourdy [dont do something weird istg.] .FrozenDebt/Itrapped x mafioso. Noli x azure isnt my fav but ill be up for it if u wanna int .jst iwc ok!
 
 # ! ~  ^ PLEASEE INT AS THESE SHIPS I LOVE THEM FRFR OK . ok. Ill never mind ok. ^  ~ !
 
