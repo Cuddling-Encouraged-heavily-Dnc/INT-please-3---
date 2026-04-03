@@ -4,7 +4,7 @@
 
 Skatingrease , Ihasafacelulz ,Gacha club [gl and gl2 aswell] Mlbb / mobile legends bang bang Murder drones 
 The amazing digital circus Minecraft Blair
-Forsaken , dandys world , crk/cookie run kingdom {dont know much about it and dont play it actually} . Let him go , Limbus company . Roblox , technoblade + YUB fans , fnaf , epithet erased , Minecraft youtubers kinda . Die of death but i lowk know nothin about it asides from like 1 character ./ j but still
+Forsaken , dandys world , crk/cookie run kingdom {dont know much about it and dont play it actually} . Let him go , Limbus company . Roblox , technoblade + YUB fans , fnaf , epithet erased , Minecraft youtubers kinda . Die of death but i lowk know nothin about it asides from like 1 character ./ j but still The freak circus (Fans iwvec /iwec please..) 
 
 # . Ships - 
 
