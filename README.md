@@ -18,7 +18,11 @@ MATCHING SKINS INT W ME OKKK i love matching skins w people its so fun istg do t
 
 People who yap about anything even serious topics and dont mind ok . I sometimes do want to talk about serious topics and if do that aswell INT RIGHT NOW ! 
 
-energetic / "freaky" people INT !! ILL MATCH YO ENERGYS . most of the time :o but i swear i never mind .!! ...
+energetic / "freaky" people INT !! ILL MATCH YO ENERGYS . most of the time :o but i swear i never mind .!! ... 
+
+Btw since someone asked me this in my uh atabook  
+
+yeah yall are free to C+h if my name has dni in it . just dont talk to me LOL . okay !! <333 
 
 <img width="191" height="228" alt="image" src="https://github.com/user-attachments/assets/0c93b2af-3cf4-405a-a10e-f86ac16d625d" /> 
 
